@@ -1,0 +1,5 @@
+# The Designer Journey A how to becoming the designer of your dreams
+
+Copyright C 2022 by Hillodesign All rights reserved.In accordance with the U.S. Copyright Act of 1976, the scanning, uploading, and electronic sharing of any part of this book without the persmission of the punblisher constitute unlawful piracy and theft of the author's intellectual property. If you would like to use material from the book (other than for review purposes), prior written permission must be obtained by contacting the publisher at jaemin@hillodesign.com. Thank you for your support of the author's rights.
+
+## Are you a high school student looking for help understanding the creative field? Looking for help navigating various job titles and job roles? What subset of design is most suitied to you? Looking for motivation and help with getting and keeping up with the Design Journey? Just getting started on your journey? This book will help you become the designer of your dreams!
